@@ -1,5 +1,5 @@
  Hi I'm swarnim👋
- born to be auntomobile mechanical engineer
+ born to be automobile mechanical engineer
  forced to be software engineer😮‍💨
 
 Here are some ideas to get you started:
